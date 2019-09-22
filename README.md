@@ -1,1 +1,1 @@
-[Summary Ihar Tsykala](https://IharTsykala.github.io/rsschool-cv/cv)
+[Summary Ihar Tsykala](https://IharTsykala.github.io/rsschool-cv)
